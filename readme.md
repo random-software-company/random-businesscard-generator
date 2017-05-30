@@ -1,1 +1,1 @@
-Only for senjor djevopers
+Only for senjor djevopers and serjous programmators
